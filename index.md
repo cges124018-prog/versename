@@ -1,6 +1,3 @@
-1️⃣ 使用者協議 (Terms of Service)
-請直接複製下方文字，貼入您的 Notion 頁面：
-
 使用者協議 (Terms of Service)
 最後更新日期：2026年2月26日
 
